@@ -1,0 +1,1 @@
+cuman buat tugas lek
